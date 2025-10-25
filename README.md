@@ -1,5 +1,4 @@
-<p align="center"> <img src=![IMG_1747](https://github.com/user-attachments/assets/9f93f59f-1bdb-47f1-a77f-d51faefa0da6)
-.pnj">
+<p align="center"> <img src="https://64.media.tumblr.com/08748ee2ca512edc84f2e9adeb0ed77b/dc3fa06d170e898e-87/s640x960/6f8df91945230853084e1a9cc52771634792e592.pnj">
   
 ### <p align="center">  ☾ ⠀⠀  *ask 4 name*  ⠀.
 <p align="center"> ⠀ 6teen ﹒ 🇾🇹 ⠀⟡     
