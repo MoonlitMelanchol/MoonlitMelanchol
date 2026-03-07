@@ -1,5 +1,5 @@
 
-### <p align="center">  ☾ ⠀⠀  *SHE/HER*  ⠀.
+### <p align="center">  ☆ ⠀⠀  *SHE/HER*  ⠀.
   
 <p align="center">✧ rentry byi ﹒ sign ata !
 <p align="center"> ⠀i follow people i fw  ✦
