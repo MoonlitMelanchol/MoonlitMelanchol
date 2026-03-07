@@ -18,6 +18,8 @@ He is an anthropomorphic hedgehog known for his ability to run faster than the s
 <img width="736" height="480" alt="بدون اسم312_20260308000651" src="https://github.com/user-attachments/assets/c14b319c-44ec-4716-9e00-64ed513e5340" />
 
 
+### <p align="center">  ☆ ⠀⠀  *FRIEND*  ⠀.
+
 •Tails (Miles Prower): Sonic's loyal best friend, a two-tailed fox and genius inventor
 
 •Amy Rose: A cheerful hedgehog who is deeply devoted to Sonic.
