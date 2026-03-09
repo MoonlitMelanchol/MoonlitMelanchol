@@ -11,7 +11,7 @@
 He is an anthropomorphic hedgehog known for his ability to run faster than the speed of sound, hence his name. As his species implies, Sonic can roll up into a ...
 
 
-img src="https://i.postimg.cc/yYMfj5NS/Untitled37-20260127141149.png" width="100" />
+
 <h5 align="center">
   ${\textsf{\color{#0559a8}hello,}}$ ${\textsf{\color{#029bba}welcome}}$ ${\textsf{\color{#04b89d}to}}$ ${\textsf{\color{#0559a8}my}}$ ${\textsf{\color{#029bba}git}}$ ${\textsf{\color{#04b89d}hub!}}$
 
