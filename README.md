@@ -13,11 +13,13 @@ He is an anthropomorphic hedgehog known for his ability to run faster than the s
 
 
 <h5 align="center">
-  ${\textsf{\color{#0559a8}hello,}}$ ${\textsf{\color{#029bba}welcome}}$ ${\textsf{\color{#04b89d}to}}$ ${\textsf{\color{#0559a8}my}}$ ${\textsf{\color{#029bba}git}}$ ${\textsf{\color{#04b89d}hub!}}$
+  ${\textsf{\color{#0559a8}hello,}}$ ${\textsf{\color{#029bba}なん}}$ ${\textsf{\color{#04b89d}から}}$ ${\textsf{\color{#0559a8}や}}$ 
 
 
 
-<img width="736" height="480" alt="بدون اسم312_20260308000651" src="https://github.com/user-attachments/assets/c14b319c-44ec-4716-9e00-64ed513e5340" />
+<img width="564" height="564" alt="بدون اسم315_20260313001920" src="https://github.com/user-attachments/assets/5c91ff8b-e2a2-423b-88c1-4efe9630f63d" />
+
+
 
 
 ### <p align="center">  ☆ ⠀⠀  *FRIEND*  ⠀.
