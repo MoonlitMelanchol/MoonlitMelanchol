@@ -17,9 +17,6 @@ He is an anthropomorphic hedgehog known for his ability to run faster than the s
 
 
 
-<img width="564" height="564" alt="بدون اسم315_20260313001920" src="https://github.com/user-attachments/assets/5c91ff8b-e2a2-423b-88c1-4efe9630f63d" />
-
-
 
 
 ### <p align="center">  ☆ ⠀⠀  *FRIEND*  ⠀.
