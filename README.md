@@ -3,7 +3,7 @@
   
 ⪩⠀ ![](https://files.catbox.moe/60w4tm.gif) ⠀⠀***alright***⠀!⠀⠀*now⠀⠀we're⠀⠀talking*⠀⠀!
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![]
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
 <p align="center"> not cringe + nice
