@@ -25,8 +25,8 @@ He is an anthropomorphic hedgehog known for his ability to run faster than the s
 
 ### <p align="center">  ☆ ⠀⠀  *FRIEND*  ⠀.
 
-•Tails (Miles Prower): Sonic's loyal best friend, a two-tailed fox and genius inventor
+![](https://files.catbox.moe/60w4tm.gif)•Tails (Miles Prower): Sonic's loyal best friend, a two-tailed fox and genius inventor
 
-•Amy Rose: A cheerful hedgehog who is deeply devoted to Sonic.
+![](https://files.catbox.moe/60w4tm.gif)•Amy Rose: A cheerful hedgehog who is deeply devoted to Sonic.
 
-•Rouge the Bat: A treasure hunter and spy.
+![](https://files.catbox.moe/60w4tm.gif)•Rouge the Bat: A treasure hunter and spy.
