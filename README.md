@@ -9,7 +9,8 @@
 <p align="center"> not cringe + nice
 ">　⟡　<a href="https://sonic276.straw.page">strawpage</a> <br>
 
-  ![IMG_3834](https://github.com/user-attachments/assets/a9c25fcf-21e1-4ebb-9e1e-737c6807d7d6)
+  ![IMG_3835](https://github.com/user-attachments/assets/e76470e7-db8b-49b6-b0a0-df6be81cca1b)
+
 
 
 
