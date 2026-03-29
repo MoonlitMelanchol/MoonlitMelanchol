@@ -9,7 +9,7 @@
 <p align="center"> not cringe + nice
 ">　⟡　<a href="https://sonic276.straw.page">strawpage</a> <br>
 
-   <img width="765" height="27" alt="IMG_3430" src=![IMG_3834](https://github.com/user-attachments/assets/27893195-b2d1-49d7-a891-f7fb7ce754aa)
+   <img width="765" height="27" alt="IMG_3430" src=https://github.com/user-attachments/assets/27893195-b2d1-49d7-a891-f7fb7ce754aa)
  />
 
 
