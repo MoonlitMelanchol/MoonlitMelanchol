@@ -9,8 +9,8 @@
 <p align="center"> not cringe + nice
 ">　⟡　<a href="https://sonic276.straw.page">strawpage</a> <br>
 
-   <img width="765" height="27" alt="IMG_3430" src=https://github.com/user-attachments/assets/27893195-b2d1-49d7-a891-f7fb7ce754aa)
- />
+  ![IMG_3834](https://github.com/user-attachments/assets/a9c25fcf-21e1-4ebb-9e1e-737c6807d7d6)
+
 
 
 He is an anthropomorphic hedgehog known for his ability to run faster than the speed of sound, hence his name. As his species implies, Sonic can roll up into a ...
