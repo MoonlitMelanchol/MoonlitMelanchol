@@ -1,7 +1,7 @@
 
 ### <p align="center">  ☆ ⠀⠀  *WELCOME*  ⠀.
   
-⪩⠀ ![](https://files.catbox.moe/60w4tm.gif) ⠀⠀***alright***⠀!⠀⠀*now⠀⠀we're⠀⠀talking*⠀⠀!
+⪩⠀ ![](https://files.catbox.moe/60w4tm.gif) ⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
@@ -9,7 +9,8 @@
 <p align="center"> not cringe + nice
 ">　⟡　<a href="https://sonic276.straw.page">strawpage</a> <br>
 
-  ![IMG_3835](https://github.com/user-attachments/assets/e76470e7-db8b-49b6-b0a0-df6be81cca1b)
+  <img width="1920" height="1080" alt="Untitled337_20260330041316" src="https://github.com/user-attachments/assets/080ffe36-f9c9-4af2-b1f5-f9bece2437fa" />
+
 
 
 
