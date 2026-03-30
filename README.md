@@ -24,7 +24,7 @@ He is an anthropomorphic hedgehog known for his ability to run faster than the s
 <h5 align="center">
   ${\textsf{\color{#0559a8}hello,}}$ ${\textsf{\color{#029bba}なん}}$ ${\textsf{\color{#04b89d}から}}$ ${\textsf{\color{#0559a8}や}}$ 
 
-
+_**"私は自分の性格に座っている人が好きではありません。"**_
 
 
 
