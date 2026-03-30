@@ -6,10 +6,12 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
-<p align="center"> not cringe + nice
+<p align="center"> ヤかも
+  
 ">　⟡　<a href="https://sonic276.straw.page">strawpage</a> <br>
 
-  <img width="1920" height="1080" alt="Untitled337_20260330041316" src="https://github.com/user-attachments/assets/080ffe36-f9c9-4af2-b1f5-f9bece2437fa" />
+  <img width="1920" height="1080" alt="Untitled339_20260330041531" src="https://github.com/user-attachments/assets/e7fe61b2-bd9e-4cda-99e4-e2bc96ae00b0" />
+
 
 
 
