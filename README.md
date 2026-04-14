@@ -1,5 +1,5 @@
 
-### <p align="center">  ☆ ⠀⠀  *WELCOME*  ⠀.
+
   
 ⪩⠀ ![](https://files.catbox.moe/60w4tm.gif) ⠀⠀
 
